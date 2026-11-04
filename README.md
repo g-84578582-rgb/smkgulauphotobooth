@@ -1,0 +1,2 @@
+# smkgulauphotobooth
+MAJLIS APRESIASI ASRAMA SMK GULAU
